@@ -5,6 +5,103 @@
 <p class="" data-start="707" data-end="915">I didn’t want to get my hopes up. But within 30 minutes of logging in, I had a fully-produced, professional-quality video ready to publish. No cameras. No editing timeline nightmares. No voiceovers to record.</p>
 <p class="" data-start="917" data-end="930">Just results.</p>
 
+# 🎬 VidForce AI – Full Funnel Access + Exclusive Bonuses!
+
+## IMPORTANT:
+Before clicking any OTO links, **you must visit the Front End (FE) link first** to ensure my affiliate ID is locked in.
+
+Use this official WarriorPlus link:  
+`warriorplus[dot]com/o2/a/n8nnj5v/0/g`  
+**Affiliate ID: 614944 – mobikill2016**  
+(*Required to qualify for my bonus package*)
+
+---
+
+## 🚀 VidForce AI – Front End (FE)  
+💸 **Coupon Code: `VFORCE`**  
+👉 Type or click:  
+`warriorplus[dot]com/o2/a/n8nnj5v/0/g`
+
+---
+
+## 🌟 OTO 1: VidForce AI Premium Edition  
+💸 **Coupon Code: `VFORCEOTO1`**  
+👉 `getvidforceai[dot]com/premium-oto1`
+
+---
+
+## 💎 OTO 2: VidForce AI Max Edition  
+💸 **Coupon Code: `VFORCEOTO2`**  
+👉 `getvidforceai[dot]com/max-oto2`
+
+---
+
+## 📚 OTO 3: VidForce AI Talking Book Edition  
+💸 **Coupon Code: `VFORCEOTO3`**  
+👉 `getvidforceai[dot]com/talkingbook-oto3`
+
+---
+
+## 📅 OTO 4: VidForce AI Appointment Edition  
+💸 **Coupon Code: `VFORCEOTO4`**  
+👉 `getvidforceai[dot]com/appointment-oto4`
+
+---
+
+## 🛠️ OTO 5: VidForce AI DFY Edition  
+💸 **Coupon Code: `VFORCEOTO5`**  
+👉 `getvidforceai[dot]com/dfy-oto5`
+
+---
+
+## 🏬 OTO 6: VidForce AI Store Edition  
+💸 **Coupon Code: `VFORCEOTO6`**  
+👉 `getvidforceai[dot]com/store-oto6`
+
+---
+
+## ☁️ OTO 7: VidForce AI Cloud Storage Edition  
+💸 **Coupon Code: `VFORCEOTO7`**  
+👉 `getvidforceai[dot]com/cloud-storage-oto7`
+
+---
+
+## 🏢 OTO 8: VidForce AI Agency Edition  
+💸 **Coupon Code: `VFORCEOTO8`**  
+👉 `getvidforceai[dot]com/agency-oto8`
+
+---
+
+## 🔁 OTO 9: VidForce AI Reseller Edition  
+💸 **Coupon Code: `VFORCEOTO9`**  
+👉 `getvidforceai[dot]com/reseller-oto9`
+
+---
+
+## 🧪 OTO 10: VidForce AI Whitelabel Edition  
+💸 **Coupon Code: `VFORCEOTO10`**  
+👉 `getvidforceai[dot]com/whitelabel-oto10`
+
+---
+
+## 🎁 Check Out My Bonus Page  
+Access exclusive bonuses here:  
+`williamreview[dot]com/vidforce-ai`
+
+---
+
+## 💎 Special Bonus From Me  
+🎁 **Mega 5,000 Bonuses – Valued at $2,976,749**  
+Grab your treasure chest of marketing resources:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How To Claim Your Bonuses:
+
+1. Purchase using **any of the official links above**.  
+2. Send your **receipt ID** to: `support@williamreview[dot]com`  
+3. You’ll get **ALL bonuses within 12 hours**. Don’t forget to email me to confirm you completed Step 2.
 
 <hr class="" data-start="932" data-end="935" />
 
@@ -89,3 +186,100 @@
 <p class="" data-start="4390" data-end="4544">Whether you’re building a brand, promoting offers, educating your audience, or just want to stay ahead of the curve—<strong data-start="4506" data-end="4543">VidForce AI is your secret weapon</strong>.</p>
 <p class="" data-start="4546" data-end="4723">Don’t waste another month stuck in content paralysis.<br data-start="4599" data-end="4602" />Let this tool do the heavy lifting, and watch what happens when your message finally starts connecting the way it should.</p>
 <p class="" data-start="4725" data-end="4783">👉 <strong data-start="4728" data-end="4783">Grab VidForce AI today. Your next level starts now.</strong></p>
+# 🎬 VidForce AI – Full Funnel Access + Exclusive Bonuses!
+
+## IMPORTANT:
+Before clicking any OTO links, **you must visit the Front End (FE) link first** to ensure my affiliate ID is locked in.
+
+Use this official WarriorPlus link:  
+`warriorplus[dot]com/o2/a/n8nnj5v/0/g`  
+**Affiliate ID: 614944 – mobikill2016**  
+(*Required to qualify for my bonus package*)
+
+---
+
+## 🚀 VidForce AI – Front End (FE)  
+💸 **Coupon Code: `VFORCE`**  
+👉 Type or click:  
+`warriorplus[dot]com/o2/a/n8nnj5v/0/g`
+
+---
+
+## 🌟 OTO 1: VidForce AI Premium Edition  
+💸 **Coupon Code: `VFORCEOTO1`**  
+👉 `getvidforceai[dot]com/premium-oto1`
+
+---
+
+## 💎 OTO 2: VidForce AI Max Edition  
+💸 **Coupon Code: `VFORCEOTO2`**  
+👉 `getvidforceai[dot]com/max-oto2`
+
+---
+
+## 📚 OTO 3: VidForce AI Talking Book Edition  
+💸 **Coupon Code: `VFORCEOTO3`**  
+👉 `getvidforceai[dot]com/talkingbook-oto3`
+
+---
+
+## 📅 OTO 4: VidForce AI Appointment Edition  
+💸 **Coupon Code: `VFORCEOTO4`**  
+👉 `getvidforceai[dot]com/appointment-oto4`
+
+---
+
+## 🛠️ OTO 5: VidForce AI DFY Edition  
+💸 **Coupon Code: `VFORCEOTO5`**  
+👉 `getvidforceai[dot]com/dfy-oto5`
+
+---
+
+## 🏬 OTO 6: VidForce AI Store Edition  
+💸 **Coupon Code: `VFORCEOTO6`**  
+👉 `getvidforceai[dot]com/store-oto6`
+
+---
+
+## ☁️ OTO 7: VidForce AI Cloud Storage Edition  
+💸 **Coupon Code: `VFORCEOTO7`**  
+👉 `getvidforceai[dot]com/cloud-storage-oto7`
+
+---
+
+## 🏢 OTO 8: VidForce AI Agency Edition  
+💸 **Coupon Code: `VFORCEOTO8`**  
+👉 `getvidforceai[dot]com/agency-oto8`
+
+---
+
+## 🔁 OTO 9: VidForce AI Reseller Edition  
+💸 **Coupon Code: `VFORCEOTO9`**  
+👉 `getvidforceai[dot]com/reseller-oto9`
+
+---
+
+## 🧪 OTO 10: VidForce AI Whitelabel Edition  
+💸 **Coupon Code: `VFORCEOTO10`**  
+👉 `getvidforceai[dot]com/whitelabel-oto10`
+
+---
+
+## 🎁 Check Out My Bonus Page  
+Access exclusive bonuses here:  
+`williamreview[dot]com/vidforce-ai`
+
+---
+
+## 💎 Special Bonus From Me  
+🎁 **Mega 5,000 Bonuses – Valued at $2,976,749**  
+Grab your treasure chest of marketing resources:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How To Claim Your Bonuses:
+
+1. Purchase using **any of the official links above**.  
+2. Send your **receipt ID** to: `support@williamreview[dot]com`  
+3. You’ll get **ALL bonuses within 12 hours**. Don’t forget to email me to confirm you completed Step 2.
